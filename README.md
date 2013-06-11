@@ -1,3 +1,3 @@
-FooCoin (FOO)
+Onelast 
 
 Blah, blah, blah.
